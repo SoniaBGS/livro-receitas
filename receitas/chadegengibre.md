@@ -1,5 +1,5 @@
 ## Chá de Gengibre🍵 
-
+O chá de gengibre tem ação diurética e termogênica com muito benefícios à saúde.
 ### Ingredientes
 
 1 colher de sopa de gengibre ralado 
